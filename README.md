@@ -15,3 +15,4 @@ saya jue menambahkan sebuah kode Javascript
 
 
 what the helllllllll omagaaaaaaaaa
+Saya niki akan melanjutkan tugas ini
