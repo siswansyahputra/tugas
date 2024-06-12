@@ -18,7 +18,7 @@ what the helllllllll omagaaaaaaaaa
 Saya niki akan melanjutkan tugas ini
 ini fauzan ngetes ajaa
 
-
+haii kila here
 
 ini haqi we
 halo my name is wiby
