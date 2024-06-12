@@ -22,3 +22,5 @@ ini fauzan ngetes ajaa
 
 ini haqi we
 halo my name is wiby
+
+halo saya wawa
