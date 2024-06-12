@@ -12,3 +12,6 @@ Ini saya tambahkan lagi
 
 saya raihan membuat button input
 saya jue menambahkan sebuah kode Javascript
+
+
+what the helllllllll omagaaaaaaaaa
